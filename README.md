@@ -1,0 +1,1 @@
+# rose-AI-semana-6
